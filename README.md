@@ -1,7 +1,7 @@
 # app-dev
-# My first repository.
-# My Favorite Movie Series *
-# Lucifer
+## My first repository.
+### My Favorite Movie Series 
+#### Lucifer
 * Genre: Comedy drama, Mystery, Urban fantasy, Police procedural, Occult detective fiction, Crime TV genre
 * Based on: Characters created for DC Comics' Vertigo; by: Neil Gaiman; Sam Kieth; Mike Dringenberg
 - - - 
