@@ -24,4 +24,5 @@
 **Storyline**
 
 After the death of one of the rich and popular Blossom twins on the 4th of July, the small town of Riverdale investigates the murder. The series starts in September, the beginning of a new school year, that brings with it new students, relationships, and reveals the mysteries of the past 4th of July.
-[If you like to watch Riverdale you can watch here! [Riverdale](https://sflix.to/tv/free-riverdale-hd-39536) 
+- - - 
+[If you like to watch Riverdale you can watch here! [Riverdale](https://sflix.to/tv/free-riverdale-hd-39536)]
