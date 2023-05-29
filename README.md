@@ -23,8 +23,8 @@
 - - - 
 **Synopsis**
 
-**Based loosely on the characters from Archie Comics, Riverdale follows the story of Archie Andrews (KJ Apa), who lives with his father, Fred (Luke Perry), who's separated from Archie's mother, Mary (Molly Ringwald). Archie's best friends are Betty Cooper (Lili Reinhart) and Jughead Jones (Cole Sprouse). **
+**Based loosely on the characters from Archie Comics, Riverdale follows the story of Archie Andrews (KJ Apa), who lives with his father, Fred (Luke Perry), who's separated from Archie's mother, Mary (Molly Ringwald). Archie's best friends are Betty Cooper (Lili Reinhart) and Jughead Jones (Cole Sprouse).** 
 
-**In the first season, when classmate Jason Blossom (Trevor Stines) goes missing while out boating on a river with his twin sister Cheryl (Madelaine Petsch), it gets the people of Riverdale worried about the direction their town is taking. Meanwhile, rich girl Veronica Lodge (Camila Mendes) moves to town from New York with her mother, Hermione (Marisol Nichols) when Hiram Lodge (Mark Consuelos), Veronica's father, is sent to prison. **
+**In the first season, when classmate Jason Blossom (Trevor Stines) goes missing while out boating on a river with his twin sister Cheryl (Madelaine Petsch), it gets the people of Riverdale worried about the direction their town is taking. Meanwhile, rich girl Veronica Lodge (Camila Mendes) moves to town from New York with her mother, Hermione (Marisol Nichols) when Hiram Lodge (Mark Consuelos), Veronica's father, is sent to prison.**
 - - - 
 **[If you like to watch Riverdale you can watch here! [Riverdale](https://sflix.to/tv/free-riverdale-hd-39536)]**
