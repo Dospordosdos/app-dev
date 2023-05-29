@@ -12,3 +12,14 @@
 **Summary: Lucifer Morningstar, bored from his sulking life in hell, comes to live in Los Angeles. While there, he helps humanity with its miseries through his experience and telepathic abilities to bring people's deepest desires and thoughts out of them. While meeting with a Detective in his nightclub (Lux), a shootout involving him and the Detective leads him to become an LAPD consultant who tries to punish people for their crimes through law and justice.
 - - - 
 If you like to watch Lucifer you can watch here! [Lucifer]((https://sflix.to/tv/free-lucifer-hd-39495). 
+- - - 
+#### Riverdale
+* Genre: Crime, Drama, Mystery
+* Creator: Roberto Aguirre-Sacasa
+* Stars: Lili ReinhartCamila MendesCole Sprouse
+- - - 
+![download](https://github.com/Dospordosdos/app-dev/assets/133499845/71573e6f-5196-4c93-b52a-61ed5786f3cc)
+- - - 
+**Storyline
+
+After the death of one of the rich and popular Blossom twins on the 4th of July, the small town of Riverdale investigates the murder. The series starts in September, the beginning of a new school year, that brings with it new students, relationships, and reveals the mysteries of the past 4th of July.
