@@ -13,16 +13,18 @@
 - - - 
 [If you like to watch Lucifer you can watch here! [Lucifer]((https://sflix.to/tv/free-lucifer-hd-39495). ]
 - - - 
+- - - 
 #### Riverdale
 * Genre: Crime, Drama, Mystery
 * Creator: Roberto Aguirre-Sacasa
 * Stars: Lili ReinhartCamila MendesCole Sprouse
 - - - 
+![riverdale](https://github.com/Dospordosdos/app-dev/assets/133499845/b5faf7ef-8e6f-46c7-8a8c-878f0e38ae16)
 - - - 
-![riverdale-netflix-131772](https://github.com/Dospordosdos/app-dev/assets/133499845/28b78afb-1a08-4c6b-95a9-e7ed47824b44)
-- - - 
-**Storyline**
+**Synopsis**
 
-After the death of one of the rich and popular Blossom twins on the 4th of July, the small town of Riverdale investigates the murder. The series starts in September, the beginning of a new school year, that brings with it new students, relationships, and reveals the mysteries of the past 4th of July.
+Based loosely on the characters from Archie Comics, Riverdale follows the story of Archie Andrews (KJ Apa), who lives with his father, Fred (Luke Perry), who's separated from Archie's mother, Mary (Molly Ringwald). Archie's best friends are Betty Cooper (Lili Reinhart) and Jughead Jones (Cole Sprouse). 
+
+In the first season, when classmate Jason Blossom (Trevor Stines) goes missing while out boating on a river with his twin sister Cheryl (Madelaine Petsch), it gets the people of Riverdale worried about the direction their town is taking. Meanwhile, rich girl Veronica Lodge (Camila Mendes) moves to town from New York with her mother, Hermione (Marisol Nichols) when Hiram Lodge (Mark Consuelos), Veronica's father, is sent to prison. 
 - - - 
 [If you like to watch Riverdale you can watch here! [Riverdale](https://sflix.to/tv/free-riverdale-hd-39536)]
